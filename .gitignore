@@ -3,3 +3,4 @@
 publish.sh
 *.pem
 __pycache__
+.DS_store
