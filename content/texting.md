@@ -1,0 +1,11 @@
+Title: Social Difficulties
+Date: 2025-01-12
+Category: Musings
+
+The idea of texting someone out of the blue and asking how they're doing is so oddly difficult. I do do it occassionaly, and sometimes even get a response! Throwing the first message of the day feels like I'm going "whaaaa whaa talk to me like the filthy disgusting baby I am whaaa". I know this is how humans engage in modern society, but I am increasingly aware I dislike being the one to start that without a distinct thing to talk about. The idea of "keeping up" with someone is so alien to my soul I might as well be on fucking Jupiter.... because I am stupider I guess. There's nothing inherently wrong with that style of communication. I see several of my friends and colleagues firing off the daily barrage and yet nothing I put into my wet little head makes it stick.
+
+So how then, should I keep up? Perhaps automated reminders to message the people I care to engage with in some level for the rest of my life? I think that actually might be a great solution. The downside is that the form of automated messaging needs to be convenient. An email might be ideal, but that is a hassle as email servers are a pain in the ass to setup. Doable, but annoying. Texting? I _think_ that costs money, but if it doesn't that'd be a good one. Discord could also work, but with rumors of their IPO I am not sure I want to bank on building the system there when it might be yanked out from under me. Is this the kind of things I should just ask an AI coding tool to write for me? Take the joy out of the process and instead have an end result, filling this void that may not need to be filled? Strange, the way the world works.
+
+I don't even know, thinking about it, if my human desires require me to send these messages. Yet, without some level of connection, I feel a profound sense of loneliness. I am living in easily the most social period of my life, engaging in activities of some form multiple times a week, and yet even still I feel this societal disconnect I do not know how to overcome. I am hiking everyday, yet the mountain is just as far, and it's unclear if it'll ever be closer. 
+
+Writing a list of people to message would be good at least, but that's for Ryan's private brain space, not this blog space.
