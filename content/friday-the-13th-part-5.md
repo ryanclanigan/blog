@@ -1,5 +1,5 @@
 Title: Friday the 13th Parts 4 and 5
-Date: 2025-01-16
+Date: 2026-01-16
 Category: Review
 
 Alright here are two quick reviews of Friday the 13th Part 4 (aka The Final Chapter) and Part 5 (aka A New Beginning)

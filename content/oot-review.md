@@ -1,5 +1,5 @@
 Title: The Legend of Zelda: Ocarina of Time
-Date: 2025-01-04
+Date: 2026-01-04
 Category: Review
 
 I've played a lot of games in my time, including Zelda games! As a wee lad though, I never actually finished _The Legend of Zelda: Ocarina of Time_. As a child certain aspects of it were damn near inscrutable, from it's fairly awkward dodging, to it's (at the time), sprawling and awe-inspiring open world. As a 6 year old, it's impossible to gauge how big the world actually is and where it ends and the new world begins. Despite OOT coming out essentially when I was born, I only played it at my grandparent's house until my brother stumbled upon BOTH of the Zelda collections that came with OOT included. I poured hours and hours into both versions, my brain attempting to run through it's world like cheese through a grater, and I felt endlessly lost and desperately stupid. There was a distinct feeling of incompatability that I never was able to get past, instead putting my time into the also difficult, but more scrutable world of The Wind Waker, Devil May Cry, and other more modern games.

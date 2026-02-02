@@ -1,5 +1,5 @@
 Title: Relationship burnout
-Date: 2025-01-05
+Date: 2026-01-05
 Category: Musings
 
 I am polyamorous, and I have 3 partners. I've been poly for 5.5ish years and have had 3 partners for about 2.5 years, and it's overall positive. Over the past 7 months or so, I've been going in and out of feelings of burnout with regards to my relationships. Which is interesting, because historically I've always been the rock that's managed to steel myself and help my partners. Of course I've needed help, but the dynamic was overwhelmingly the other way around. At this point it feels closer to 50/50 with all of my partners, which is _probably_ positive, but I'm not sure. 

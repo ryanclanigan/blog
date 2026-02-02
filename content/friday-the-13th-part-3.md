@@ -1,5 +1,5 @@
 Title: Friday the 13th Part 3
-Date: 2025-01-06
+Date: 2026-01-06
 Category: Review
 
 I've been slowly watching the Friday the 13th movies with a partner. Hey man, these movies kind of suck. I _genuinely_ do not know how they ever fucking happened man. However, they are slowly getting better. 

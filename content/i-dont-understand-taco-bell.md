@@ -1,5 +1,5 @@
 Title: I don't understand Taco Bell
-Date: 2025-01-23
+Date: 2026-01-23
 Category: Musings
 
 I really don't fucking understand Taco Bell man. Rather, I don't understand why people enjoy it as much as they do. This is a genuine call for understanding and connection. I see your quesorito. Your 4 wet, sloppy tacos. Your formerly exclusive Baja Blast™️. All of these are seen and tasted. I feel the grease in my mouth, the sick scent of the heat lamp, the burning overwhelming sense of depression coming from the workers' soul as they wrapped this tortilla around something representing the idea of meat. My tongue, my senses feel all of that and more, and I... can eat it, but I cannot truly _want_ it. 

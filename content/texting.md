@@ -1,5 +1,5 @@
 Title: Social Difficulties
-Date: 2025-01-12
+Date: 2026-01-12
 Category: Musings
 
 The idea of texting someone out of the blue and asking how they're doing is so oddly difficult. I do do it occassionaly, and sometimes even get a response! Throwing the first message of the day feels like I'm going "whaaaa whaa talk to me like the filthy disgusting baby I am whaaa". I know this is how humans engage in modern society, but I am increasingly aware I dislike being the one to start that without a distinct thing to talk about. The idea of "keeping up" with someone is so alien to my soul I might as well be on fucking Jupiter.... because I am stupider I guess. There's nothing inherently wrong with that style of communication. I see several of my friends and colleagues firing off the daily barrage and yet nothing I put into my wet little head makes it stick.
