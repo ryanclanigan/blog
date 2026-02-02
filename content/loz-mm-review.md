@@ -1,4 +1,4 @@
-Title: Relationship burnout
+Title: The Legend of Zelda: Majora's Mask
 Date: 2026-02-01
 Category: Review
 
